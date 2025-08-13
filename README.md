@@ -103,6 +103,9 @@ I am multifandomed, the list below is the Fandoms I am in (From most to least fr
 
 °Genshin Impact 
 
+![7c91804edf454478607d56b79548de19](https://github.com/user-attachments/assets/29c3d623-b0a6-4ffa-bd5d-809338bacb5a)
+![feaa2f2a4506416674ac7c657fa1339e](https://github.com/user-attachments/assets/3dd85d5a-850c-4a1d-be49-b78962a847e4)
+
 = Canon Killer + My personal version of Nightmare + Canon Shadow Milk Cookie simp forever </3
 
 Before interacting, what you need to know is...

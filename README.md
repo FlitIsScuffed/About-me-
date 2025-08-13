@@ -263,6 +263,8 @@ Recently I have been trying to slowly write down all that I remember about certa
 
 (3): Currently going through my freshman year.
 
+![32c2e292ce1ba47b6dbb8782a3fa25ba](https://github.com/user-attachments/assets/815c3098-9917-450d-9d3d-4b5345a090e9)
+
 𓁺
 
 PT Items I will commonly use;
@@ -276,3 +278,12 @@ IWEC/⚠️ = Interact With EXTREME Caution
 IWVEC/⚠️ = Interact With VERY EXTREME Caution
 
 DNC = Do Not Copy
+
+
+
+
+![839271e2038863a2bd86822effd58530](https://github.com/user-attachments/assets/a8fabc6c-e527-40b7-9b41-f910482173eb)
+![32c4b1112abe963913365cef2b0491ea](https://github.com/user-attachments/assets/69fce66b-c9e6-4159-bc1b-80f2ce5c0c15)
+![3289689137f26eefa3c78553588a6737](https://github.com/user-attachments/assets/d1f60385-e010-44aa-bf68-1957fc839b50)
+![363e6e50f5a5fcba782de2fd2fff02bb](https://github.com/user-attachments/assets/326a51a2-1fc7-44be-9718-1706f963e66a)
+

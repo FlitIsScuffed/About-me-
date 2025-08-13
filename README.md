@@ -5,11 +5,17 @@ Hello, seems that you are from some part of the Internet, hm? Very nice to meet 
 
 𓁺
 List of my preferred names (From most appreciated to allowed);
+
 °Flit
+
 °Eztli
+
 °Mutt
+
 °Blafk Widow
+
 °Abyssal
+
 °Leviathan
 
 ![8e17078fc6526c62714561c7fc6a8b6f](https://github.com/user-attachments/assets/c3ae2954-d800-4fd4-9b15-26efb92635cf)

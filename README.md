@@ -4,32 +4,20 @@
 Hello, seems that you are from some part of the Internet, hm? Very nice to meet you, please read the following! (I know it's a lot, sobs)
 
 𓁺
+List of my preferred names (From most appreciated to allowed);
+°Flit
+°Eztli
+°Mutt
+°Blafk Widow
+°Abyssal
+°Leviathan
+
 ![8e17078fc6526c62714561c7fc6a8b6f](https://github.com/user-attachments/assets/c3ae2954-d800-4fd4-9b15-26efb92635cf)
 ![484acaec6bd9cfca37840c5a5455f63e](https://github.com/user-attachments/assets/0a388070-156a-47c0-b517-cfc659c13d79)
-![e219bbd2a9c1926e3d3f8dc8f6697241](https://github.com/user-attachments/assets/f2875641-af40-4b0c-8a22-97a7777eafa1)
-![6d71bc5981d3dd318abd62d2604658bb](https://github.com/user-attachments/assets/52a171f9-23e5-4a9b-8753-7aeb9e7ef52d)
-![d893a4f70767fe55d6f2934f3a93bf1f](https://github.com/user-attachments/assets/6141838c-d1cc-4aac-94fb-bec1c9ad06bd)
-![a240877f5feb694358f55184dd732b9a](https://github.com/user-attachments/assets/40d7c750-4cf8-4ae4-a0e6-cb1b417e6662)
-![7c91804edf454478607d56b79548de19](https://github.com/user-attachments/assets/40926a5e-703d-476a-927e-fa71b8fdc4a6)
-![50587c30a220176cafb71f4e7c92685b](https://github.com/user-attachments/assets/25a463dd-0a93-4425-bb0b-0135b4d383e9)
 
-= Response to "Any preferred names or nicknames?" Yup! I have quite a few!
 
-List:
-
-•Flit (Main)
-
-•Eztli
-
-•Black Widow
-
-•Mutt
-
-•Leviathan
-
-•Abyssal
-
-= Pronouns: Polygender + Pupgender; She/Her/They/Them/It/Its/Pup/Paw.
+My preferred pronouns! More information on pronoun link.
+Pronouns: Polygender + Pupgender; She/Her/They/Them/It/Its/Pup/Paw.
 
 Polygender; A nonbinary gender identity where a person experiences more than one gender, either simultaneously or fluctuating between them. This can include any combination of genders, such as male, female, and various non-binary identities. Some polygender people may also express characteristics of multiple genders.
 

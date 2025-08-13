@@ -114,6 +114,8 @@ Before interacting, what you need to know is...
 
 (1): I am animalhearted and a polytherian; so do not interact if you aren't comfortable with that!! I will not fucking tolerate ANY discrimination or "hunting season". Anyways; my theriotypes are the batearred fox, homing pigeon, and english mastiff. </3
 
+![18ba86cd04ff9de64633b5c405c330e4](https://github.com/user-attachments/assets/ba70298c-d0a6-4748-8db2-72e4442f0c2f)
+
 (2): I have ADHD, which I have both traits of hyperactivity and Inattentive. Along with ADHD, I have anxiety and depression; both affect me very heavily.
 
 (3): Currently getting tested for BPD (and I think for anything else I could have), so please bare with my bs lol.

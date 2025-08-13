@@ -152,15 +152,25 @@ To put this out; I do NOT do it on purpose, when I am going through those states
 
 (10): I don't really have a censor, nor do I think before speaking/texting + sometimes I don't understand the effects of my actions at first; so PLEASE please please tell whenever I hurt your feelings or anything!
 
+![62a8671cf510f752682759d87cab8be4](https://github.com/user-attachments/assets/0759a4e3-4bc0-4ba6-b29e-0f888a425b35)
+
 (11): I'm fine with being friends with adults who are below 25 (and the lowest is 11, I don't like young children ngl) but just don't push it. Exceptions for friends of my friends + knowing before becoming 25.
+
+![bda99c6ae1e315a132eb4d6a3f1dd289](https://github.com/user-attachments/assets/e573b04e-f590-48fc-ad60-0e5ec253adcb)
 
 (12): Response to "Are you taken?" Yes, I am in a beautiful long distance relationship with my lover! They are Genderfluid and their preferred name is Sage btw <33
 
+![d5fcb2f3cee76e84a4e300c8c6d72b73](https://github.com/user-attachments/assets/38c8cf00-443b-48fe-8133-c323aef78eea)
+
 (13): I am very often found to be emotionless or detached if you will — feeling such is very common for me. To explain it; it feels like I'm missing something, like a rotting corpse. It can last hours to days; unless I get triggered ofc.
+
+![623854a0e522f0fa4440d9639cd1f936](https://github.com/user-attachments/assets/77e94a7e-231d-4ee2-b6e7-df1701b4a228)
 
 (14): I have a touching trigger, mostly from experiences online (but also applies to irl). Some of my friends are more trusted than others, which you'll would know if you are one of those friends.
 
 TO ADD: There are some exceptions for me, such as if I think someone is in danger — I will let them hide behind me, especially in harassment situations.
+
+![dccb5a6098179418416672f1df87c080](https://github.com/user-attachments/assets/434eb7b0-6b92-440a-950a-057f124f22b7)
 
 (15): Despite the whole touch trigger; I am a VERY clingy and nosy person, I love cuddling but sometimes I feel like I get a little much towards my more trusted friends. Mb.
 

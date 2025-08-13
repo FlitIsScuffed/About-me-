@@ -23,6 +23,7 @@ List of my preferred names (From most appreciated to allowed);
 
 
 My preferred pronouns! More information on my pronoun.page;
+
 Pronouns: Polygender + Xenogender (Pupgender + Fanggender); She, They, It, Pup, Fang.
 (To add, I prefer genderneutrul pronouns usually but ofc I don't mind feminine pronouns.)
 

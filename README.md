@@ -122,7 +122,7 @@ Before interacting, what you need to know is...
 
 (3): Currently getting tested for BPD (and I think for anything else I could have), so please bare with my bs lol.
 
-![13816643ea3520af55a3333db7cee903](https://github.com/user-attachments/assets/5910cb52-92da-4e4c-8fb0-cdb61bbcae0a)
+![860cfa769676164c4990362c5f998fef](https://github.com/user-attachments/assets/57e4e338-f54d-4c21-adbe-dcee80a14248)
 
 (4): I am an atheist, aka I don't have any religious beliefs. If that's not okay with you then do not interact with me. I DO NOT judge my friends on their beliefs. But do tell me if I say anything disrespectful or hurtful.
 

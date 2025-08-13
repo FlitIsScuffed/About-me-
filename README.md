@@ -12,7 +12,7 @@ List of my preferred names (From most appreciated to allowed);
 
 °Mutt
 
-°Blafk Widow
+°Black Widow
 
 °Abyssal
 

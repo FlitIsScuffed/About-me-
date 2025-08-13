@@ -192,6 +192,8 @@ Recently I have been trying to slowly write down all that I remember about certa
 
 (19): Just a random thing for most people who don't know me irl but; I do NOT wish to associate with any part of my biological parents' families. I personally hate both VERY much, they are disgusting af. But to keep people from associating me with what they have done/said, I would appreciate not being asked about it.
 
+![1a4f559bb79783c009d6cf05f7d9418a](https://github.com/user-attachments/assets/80ba07d5-5302-46a6-a544-b33060d6e0ef)
+
 (20): DNI and INT list(s);
 
 \Interact/
@@ -238,6 +240,8 @@ Recently I have been trying to slowly write down all that I remember about certa
 
 • You can guess the rest because idk, just ask me on something if you want idc. I'll definitely try and do research before answering though, ofc.
 
+![9b3d3ffafbf9883b88a224a79bd90d13](https://github.com/user-attachments/assets/4011ab8d-5a62-4e37-bb95-290d562058fe)
+
 = Comfkin(s):
 
 •Dust!Sans (I flip between calling him 'Dust', 'Murder', and 'Dustbunny')
@@ -248,6 +252,8 @@ Recently I have been trying to slowly write down all that I remember about certa
 •Eternal Sugar Cookie
 •Moon & Sun → FNAF
 • Lucelia, Lucifer and LuLu (From the music/digital/visual artist creator Luluyam)
+
+![99dd7e0299d6366e8c5389636bc1191a](https://github.com/user-attachments/assets/e0388c05-3b37-44ea-a095-b6be304e6351)
 
 = Fun fact(s):
 

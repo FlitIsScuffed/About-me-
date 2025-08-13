@@ -108,6 +108,7 @@ I am multifandomed, the list below is the Fandoms I am in (From most to least fr
 I am a Canon Killer + My personal version of Nightmare + Canon Shadow Milk Cookie simp forever </3
 
 ![8dc50053648983044349eb764c87117e](https://github.com/user-attachments/assets/7c20c113-3409-4e7d-b44d-bb2d64606dec)
+![50587c30a220176cafb71f4e7c92685b](https://github.com/user-attachments/assets/5ef4f349-aefc-4ada-8724-d3d2a25d2bf6)
 
 Before interacting, what you need to know is...
 

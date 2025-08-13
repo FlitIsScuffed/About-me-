@@ -46,6 +46,9 @@ Basic information on my sexuality(s) Demian — someone who is demisexual AND de
 
 Pansexual + Panromantic — Attached to someone regardless of gender (added because some people confuse it with Bisexuality, lol)
 
+![d893a4f70767fe55d6f2934f3a93bf1f](https://github.com/user-attachments/assets/d2bd552b-1c3f-4c1a-8917-8cfa1db6fe9d)
+![a240877f5feb694358f55184dd732b9a](https://github.com/user-attachments/assets/98a5f376-df16-4a8c-b17f-92e3dee7cd19)
+
 = Birthday: the 13th of October. (/Ref??? I'm soo funny, laugh guys :P)
 
 = Bodily a Minor; 14 yr old

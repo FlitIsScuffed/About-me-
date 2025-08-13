@@ -174,13 +174,21 @@ TO ADD: There are some exceptions for me, such as if I think someone is in dange
 
 (15): Despite the whole touch trigger; I am a VERY clingy and nosy person, I love cuddling but sometimes I feel like I get a little much towards my more trusted friends. Mb.
 
+![5c40c555149a7541d860bde469727072](https://github.com/user-attachments/assets/80ad4b8d-20ac-453f-893c-794441375944)
+
 (16): Being the shy (+ sensitive) person that I am; I have a very hard time getting my boundaries across, which also triggers me because of my past experiences. I deeply apologize to anyone who gets/would get annoyed about that, I'm just a dumbass.
 
+![65093f6b5bd94f597cdda266608b91ac](https://github.com/user-attachments/assets/2064026a-6f2c-403a-8d9b-723c141bf41c)
+
 (17): I have mild/severe trust issues but can grow a bond rather quickly after that border is crossed. All that I recall about the reason why is because of my past experiences.
+
+![b6859e0bead10c4206aecc2a7a73fa1d](https://github.com/user-attachments/assets/a6660959-9de9-4e8b-b050-b753ac36c79c)
 
 (18): A lot of my past experiences are starting/completely blurred in my memories. Even so, PLEASE please be mindful on what dark/triggering topics you speak about with me.
 
 Recently I have been trying to slowly write down all that I remember about certain things. However, I would prefer to keep it to myself + between my close friends and I. (Even though I have no problem talking about certain things, oops.)
+
+![f8f381c8f99b05b1cb372cb1dc0e2713](https://github.com/user-attachments/assets/0e63233a-bbf5-4680-a117-bd11e99c46cc)
 
 (19): Just a random thing for most people who don't know me irl but; I do NOT wish to associate with any part of my biological parents' families. I personally hate both VERY much, they are disgusting af. But to keep people from associating me with what they have done/said, I would appreciate not being asked about it.
 

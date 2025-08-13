@@ -50,7 +50,7 @@ Pansexual + Panromantic — Attached to someone regardless of gender (added beca
 ![d893a4f70767fe55d6f2934f3a93bf1f](https://github.com/user-attachments/assets/d2bd552b-1c3f-4c1a-8917-8cfa1db6fe9d)
 ![a240877f5feb694358f55184dd732b9a](https://github.com/user-attachments/assets/98a5f376-df16-4a8c-b17f-92e3dee7cd19)
 
-Age based topic;
+Age based topics;
 
 My birthday is on the October 13th and I was born in 2010!
 
@@ -61,7 +61,6 @@ It takes only one (non-friend + not stated as joke) sexual comment and I'll repo
 
 ![e0a3eb04eb0a828c2ad70a82a271323d](https://github.com/user-attachments/assets/3fd8ddcb-a83d-4d38-826f-0ba50901bc50)
 ![4df1a28ad81aa3ffb53b7a678ce87a29](https://github.com/user-attachments/assets/18d1359e-dbf7-4137-8cc3-d38d0c96895b)
-![8dc50053648983044349eb764c87117e](https://github.com/user-attachments/assets/7c20c113-3409-4e7d-b44d-bb2d64606dec)
 
 
 Funny thing uhh... I have been asked to be people's parent/mom. I will say, PLEASE do not come up randomly in a game, I don't like it. As for the whole thing; I'm fine with it, I guess. Not really sure how or why someone would want me to but whatever.?
@@ -79,7 +78,7 @@ My online Children (current);
 ![da36a81241d5c2145a2b1a53d03a33e6](https://github.com/user-attachments/assets/d0e0a14e-1ca8-4c4c-ba71-9caf30d6a3e8)
 ![a7604f212a301791574c3a7f94500759](https://github.com/user-attachments/assets/eeed4274-a613-46ab-91eb-f37f13b287e6)
 
-I am multifandomed, the list below is the Fandoms I am in (From most to least frequent interactions)
+I am multifandomed, the list below is the Fandoms I am in (From most to least frequent interactions);
 
 ° Undertale + Deltarune (Plus Undertake AUs)
 
@@ -106,7 +105,9 @@ I am multifandomed, the list below is the Fandoms I am in (From most to least fr
 ![7c91804edf454478607d56b79548de19](https://github.com/user-attachments/assets/29c3d623-b0a6-4ffa-bd5d-809338bacb5a)
 ![feaa2f2a4506416674ac7c657fa1339e](https://github.com/user-attachments/assets/3dd85d5a-850c-4a1d-be49-b78962a847e4)
 
-= Canon Killer + My personal version of Nightmare + Canon Shadow Milk Cookie simp forever </3
+I am a Canon Killer + My personal version of Nightmare + Canon Shadow Milk Cookie simp forever </3
+
+![8dc50053648983044349eb764c87117e](https://github.com/user-attachments/assets/7c20c113-3409-4e7d-b44d-bb2d64606dec)
 
 Before interacting, what you need to know is...
 

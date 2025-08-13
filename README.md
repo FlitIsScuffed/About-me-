@@ -22,12 +22,18 @@ List of my preferred names (From most appreciated to allowed);
 ![484acaec6bd9cfca37840c5a5455f63e](https://github.com/user-attachments/assets/0a388070-156a-47c0-b517-cfc659c13d79)
 
 
-My preferred pronouns! More information on pronoun link.
-Pronouns: Polygender + Pupgender; She/Her/They/Them/It/Its/Pup/Paw.
+My preferred pronouns! More information on my pronoun.page;
+Pronouns: Polygender + Xenogender (Pupgender + Fanggender); She, They, It, Pup, Fang.
+(To add, I prefer genderneutrul pronouns usually but ofc I don't mind feminine pronouns.)
 
-Polygender; A nonbinary gender identity where a person experiences more than one gender, either simultaneously or fluctuating between them. This can include any combination of genders, such as male, female, and various non-binary identities. Some polygender people may also express characteristics of multiple genders.
+Basic information on what my identities are;
 
-Pupgender (also known as Puppygender); A xenogender identity where one's gender is connected to puppies or described as puppy-like, such as being small, lively, and cute. It is an umbrella term for various dog-associated genders and can be expressed in different ways, including through pronouns like "pup/pupself" or "paw/pawself".
+Polygender — A nonbinary gender identity where a person experiences more than one gender, either simultaneously or fluctuating between them. This can include any combination of genders, such as male, female, and various non-binary identities. Some polygender people may also express characteristics of multiple genders.
+
+Pupgender (also known as Puppygender) — A xenogender identity where one's gender is connected to puppies or described as puppy-like, such as being small, lively, and cute. It is an umbrella term for various dog-associated genders and can be expressed in different ways, including through pronouns like "pup/pupself" or "paw/pawself".
+
+Fanggender — A xenogender connected to the feeling of gender euphoria experienced from having or imagining having fangs
+
 
 = Sexuality(s): I am pansexual (+ panromantic) and demian.
 

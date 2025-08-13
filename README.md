@@ -118,9 +118,15 @@ Before interacting, what you need to know is...
 
 (2): I have ADHD, which I have both traits of hyperactivity and Inattentive. Along with ADHD, I have anxiety and depression; both affect me very heavily.
 
+![3549766b03eb5f7058382e78b790e047](https://github.com/user-attachments/assets/d2ea5eeb-c14e-479b-9f55-adc387c93667)
+
 (3): Currently getting tested for BPD (and I think for anything else I could have), so please bare with my bs lol.
 
+![13816643ea3520af55a3333db7cee903](https://github.com/user-attachments/assets/5910cb52-92da-4e4c-8fb0-cdb61bbcae0a)
+
 (4): I am an atheist, aka I don't have any religious beliefs. If that's not okay with you then do not interact with me. I DO NOT judge my friends on their beliefs. But do tell me if I say anything disrespectful or hurtful.
+
+![9dabfacd97892eee90e3d4dd92b27e59](https://github.com/user-attachments/assets/72109211-38c9-4646-a502-ab706e4fdea2)
 
 (5): I am very prone to anger (+ crying) episodes; which accidentally results in physical violence irl at times.. (⁠;⁠ŏ⁠﹏⁠ŏ⁠)
 

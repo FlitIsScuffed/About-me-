@@ -132,13 +132,23 @@ Before interacting, what you need to know is...
 
 To put this out; I do NOT do it on purpose, when I am going through those states — I have NO control of myself. I may have impulses to harm people (+ myself) but I do not wish to enjoy it. I don't want to hurt anyone without it being in self defense, especially towards someone I care about.
 
+![159ea7a477596123ea771b52631caaf7](https://github.com/user-attachments/assets/b7b27e2f-1501-4580-9185-9631cb2c7cd3)
+
 (6): I am a bit of a misanthrope; having very mildish fear/dislike for humankind. Idk what else to say about it so uh yeah.
+
+![37f7afd0532b7cda04033e5bd152a5a5](https://github.com/user-attachments/assets/93a92b85-bdcc-4d67-a5e8-fa9151bd8c77)
 
 (7): Response to "Why is mentally and bodily separate ages!?" You could figure it out yourself but whatever.. Short answer; I bacially grew up a lot quicker mentally than I am bodily. Use Google or something if you want a full on detailed answer.
 
+![4b83096f7506ad3f1a4b6c0cb417ba80](https://github.com/user-attachments/assets/dc3f480f-2b9e-43f4-9197-6c430febbd6b)
+
 (8): Only for VC based things; I have some trauma from VC so please bare with me when I don't want to unmute or have my camera on. Along with such — I have stuttering, volume management and mumbling problems.
 
+![6ee596d60edd3b53d4741d1601700638](https://github.com/user-attachments/assets/f3d1ccc6-f8d8-4239-8339-4001b2e57203)
+
 (9): I am quite the shy person at first when it comes to talking/texting so you will probably have to start most conversations (⁠；⁠^⁠ω⁠^)
+
+![a8a61d4adc391dcfe613dec8b0ed89cb](https://github.com/user-attachments/assets/8608d93d-f461-49b0-9178-3fc445ce35e9)
 
 (10): I don't really have a censor, nor do I think before speaking/texting + sometimes I don't understand the effects of my actions at first; so PLEASE please please tell whenever I hurt your feelings or anything!
 

@@ -75,11 +75,32 @@ My online Children (current);
 
 •Sky (?, shared between me and my lover lol)
 
-![e0a3eb04eb0a828c2ad70a82a271323d](https://github.com/user-attachments/assets/1136f71b-c623-4766-b06d-1d20e6050ce8)
+![da36a81241d5c2145a2b1a53d03a33e6](https://github.com/user-attachments/assets/d0e0a14e-1ca8-4c4c-ba71-9caf30d6a3e8)
+![a7604f212a301791574c3a7f94500759](https://github.com/user-attachments/assets/eeed4274-a613-46ab-91eb-f37f13b287e6)
 
-= I am multifandom — I'm into FNAF, COTL, MLP, UT/DR (plus UT AUs), Genshin Impact, Slay The Princess, Cookie Run Kingdom, Mouthwashing, Warrior Cats, and Kindergarten
+I am multifandomed, the list below is the Fandoms I am in (From most to least frequent interactions)
+° Undertale + Deltarune (Plus Undertake AUs)
+°Cult of The Lamb
 
-= Canon Killer + Fanon (non sexist, ableist, etc) Nightmare + Canon Shadow Milk Cookie simp forever </3
+°Pokemon
+
+°Cookie Run Kingdom
+
+°Slay The Princess 
+
+°Five Nights at Freddy's 
+
+°Warrior Cats
+
+°Mouthwashing
+
+°Kingergarten
+
+°My Little Pony
+
+°Genshin Impact 
+
+= Canon Killer + My personal version of Nightmare + Canon Shadow Milk Cookie simp forever </3
 
 Before interacting, what you need to know is...
 

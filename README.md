@@ -67,6 +67,7 @@ It takes only one (non-friend + not stated as joke) sexual comment and I'll repo
 Funny thing uhh... I have been asked to be people's parent/mom. I will say, PLEASE do not come up randomly in a game, I don't like it. As for the whole thing; I'm fine with it, I guess. Not really sure how or why someone would want me to but whatever.?
 
 My online Children (current);
+
 •Dollhouse Collective (System/DID; Heavy nonhuman and fiction heavy + NON-NSFW regress/littlespace)
 
 •Kyle (15)
@@ -79,7 +80,9 @@ My online Children (current);
 ![a7604f212a301791574c3a7f94500759](https://github.com/user-attachments/assets/eeed4274-a613-46ab-91eb-f37f13b287e6)
 
 I am multifandomed, the list below is the Fandoms I am in (From most to least frequent interactions)
+
 ° Undertale + Deltarune (Plus Undertake AUs)
+
 °Cult of The Lamb
 
 °Pokemon

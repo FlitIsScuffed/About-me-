@@ -138,7 +138,7 @@ To put this out; I do NOT do it on purpose, when I am going through those states
 
 ![37f7afd0532b7cda04033e5bd152a5a5](https://github.com/user-attachments/assets/93a92b85-bdcc-4d67-a5e8-fa9151bd8c77)
 
-(7): Response to "Why is mentally and bodily separate ages!?" You could figure it out yourself but whatever.. Short answer; I bacially grew up a lot quicker mentally than I am bodily. Use Google or something if you want a full on detailed answer.
+(7):"Why is mentally and bodily separate ages!?" You could figure it out yourself but whatever.. Short answer; I bacially grew up a lot quicker mentally than I am bodily. Use Google or something if you want a full on detailed answer.
 
 ![4b83096f7506ad3f1a4b6c0cb417ba80](https://github.com/user-attachments/assets/dc3f480f-2b9e-43f4-9197-6c430febbd6b)
 
@@ -158,11 +158,11 @@ To put this out; I do NOT do it on purpose, when I am going through those states
 
 ![bda99c6ae1e315a132eb4d6a3f1dd289](https://github.com/user-attachments/assets/e573b04e-f590-48fc-ad60-0e5ec253adcb)
 
-(12): Response to "Are you taken?" Yes, I am in a beautiful long distance relationship with my lover! They are Genderfluid and their preferred name is Sage btw <33
+(12):"Are you taken?" Yes, I am in a beautiful long distance relationship with my lover! They are Genderfluid and their preferred name is Sage btw <33
 
 ![d5fcb2f3cee76e84a4e300c8c6d72b73](https://github.com/user-attachments/assets/38c8cf00-443b-48fe-8133-c323aef78eea)
 
-(13): I am very often found to be emotionless or detached if you will — feeling such is very common for me. To explain it; it feels like I'm missing something, like a rotting corpse. It can last hours to days; unless I get triggered ofc.
+(13): I am very often found to be emotionless or detached if you will — feeling such is very common for me. To explain it; it feels like I'm missing something, like a rotting corpse. It can last hours to days; unless I get triggered, angered, or made upset ofc.
 
 ![623854a0e522f0fa4440d9639cd1f936](https://github.com/user-attachments/assets/77e94a7e-231d-4ee2-b6e7-df1701b4a228)
 
@@ -190,7 +190,7 @@ Recently I have been trying to slowly write down all that I remember about certa
 
 ![f8f381c8f99b05b1cb372cb1dc0e2713](https://github.com/user-attachments/assets/0e63233a-bbf5-4680-a117-bd11e99c46cc)
 
-(19): Just a random thing for most people who don't know me irl but; I do NOT wish to associate with any part of my biological parents' families. I personally hate both VERY much, they are disgusting af. But to keep people from associating me with what they have done/said, I would appreciate not being asked about it.
+(19): Just a random thing for most people who don't know me irl but; I do NOT wish to associate with any part of my biological parents' families. I personally hate both VERY much, they are disgusting af. But to keep people from associating me with what they have done/said around or not around me, I would appreciate not being asked about it.
 
 ![1a4f559bb79783c009d6cf05f7d9418a](https://github.com/user-attachments/assets/80ba07d5-5302-46a6-a544-b33060d6e0ef)
 
@@ -198,7 +198,7 @@ Recently I have been trying to slowly write down all that I remember about certa
 
 \Interact/
 
-•Systems (I am completely chill with y'all, plus I have a few systems as friends! Just be mindful that I will ofc act differently upon whatever alter is fronting if I am told. Also might try and adopt some Alters/the entire system, oopz 🐶)
+•DID & ODID Systems (I am completely chill with y'all, plus I have a few systems as friends! Just be mindful that I will ofc act differently upon whatever alter(s) is fronting if I am told. Also might try and adopt some Alters/the entire system, oopz 🐶)
 
 •Furries (Feel free to come up to me!)
 
@@ -244,14 +244,21 @@ Recently I have been trying to slowly write down all that I remember about certa
 
 = Comfkin(s):
 
-•Dust!Sans (I flip between calling him 'Dust', 'Murder', and 'Dustbunny')
-•Horror!Sans (I sometimes call him 'Butch')
-•Reaper!Sans
-•Lust!Sans
-•Discord → MLP
-•Eternal Sugar Cookie
-•Moon & Sun → FNAF
-• Lucelia, Lucifer and LuLu (From the music/digital/visual artist creator Luluyam)
+○Dust!Sans (I flip between calling him 'Dust', 'Murder', and 'Dustbunny')
+
+○Horror!Sans (I sometimes call him 'Butch'. BTW I do not support the creator, she's sick in the head into my opinion.)
+
+○Reaper!Sans (What can I say? A god of death, sign me up)
+
+○Lust!Sans (I do not really like the stuff I had about the creator so I don't support such.)
+
+○Discord → MLP
+
+○Eternal Sugar Cookie
+
+○Moon & Sun → FNAF
+
+○Lucelia, Lucifer and LuLu (From the music/digital/visual artist creator Luluyam)
 
 ![99dd7e0299d6366e8c5389636bc1191a](https://github.com/user-attachments/assets/e0388c05-3b37-44ea-a095-b6be304e6351)
 

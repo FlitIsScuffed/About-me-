@@ -58,7 +58,7 @@ My birthday is on the October 13th and I was born in 2010!
 I am bodily a Minor; 14 yr old. However, it can be stated that I have the mental status of an young adult; such as a 18-21 yr old. 
 
 Do NOT approach me for sexual situations or NSFW roleplaying, even if my mental state is older; my body isn't. It was DISGUSTING that I have became the way I did but I have learnt to deal with it.
-It takes only one (non-friend + not stated as joke) sexual comment and I'll report you to whatever website it happens on and go to Twitter to warn people about you.
+It takes only one (non-friend + not stated as a joke) sexual comment. I'll report you to whatever website it happens on and go to Twitter to warn people about you.
 
 ![e0a3eb04eb0a828c2ad70a82a271323d](https://github.com/user-attachments/assets/3fd8ddcb-a83d-4d38-826f-0ba50901bc50)
 ![4df1a28ad81aa3ffb53b7a678ce87a29](https://github.com/user-attachments/assets/18d1359e-dbf7-4137-8cc3-d38d0c96895b)

@@ -1,5 +1,5 @@
 # About-me-
-(Last update on; August 13, 2025)
+(Last update on; August 15, 2025)
 
 Hello, seems that you are from some part of the Internet, hm? Very nice to meet you, please read the following! (I know it's a lot, sobs)
 
@@ -44,7 +44,9 @@ My sexual/romantic orientations;
 
 I am pansexual, including panromantic, and a demian.
 
-Basic information on my sexuality(s) Demian — someone who is demisexual AND demiromantic, needing an emotional bond before anything else.
+(tbh, im open to a polyamorous relationship but I would have to make sure my lover is allowing)
+
+Basic information on my sexuality(s); Demian — someone who is demisexual AND demiromantic, needing an emotional bond before anything else.
 
 Pansexual + Panromantic — Attached to someone regardless of gender (added because some people confuse it with Bisexuality, lol)
 

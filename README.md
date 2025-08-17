@@ -39,6 +39,8 @@ Pupgender (also known as Puppygender) — A xenogender identity where one's gend
 
 Fanggender — A xenogender connected to the feeling of gender euphoria experienced from having or imagining having fangs
 
+Bloodgender; https://pin.it/72C3BCcVa
+
 ![e219bbd2a9c1926e3d3f8dc8f6697241](https://github.com/user-attachments/assets/f2875641-af40-4b0c-8a22-97a7777eafa1)
 ![6d71bc5981d3dd318abd62d2604658bb](https://github.com/user-attachments/assets/52a171f9-23e5-4a9b-8753-7aeb9e7ef52d)
 

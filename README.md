@@ -13,6 +13,8 @@ List of my preferred names (From most appreciated to allowed);
 
 °Mutt
 
+°Eternal
+
 °Black Widow
 
 °Abyssal
@@ -26,7 +28,7 @@ List of my preferred names (From most appreciated to allowed);
 
 My preferred pronouns! More information on my pronoun.page;
 
-Pronouns: Polygender + Xenogender (Pupgender + Fanggender); She, They, It, Pup, Fang.
+Pronouns: Polygender + Xenogender (Pupgender + Fanggender + Bloodgender); She, They, It, Pup, Blood, Fang.
 (To add, I prefer genderneutrul pronouns usually but ofc I don't mind feminine pronouns.)
 
 Basic information on what my identities are;
@@ -44,7 +46,7 @@ My sexual/romantic orientations;
 
 I am pansexual, including panromantic, and a demian.
 
-(tbh, im open to a polyamorous relationship but I would have to make sure my lover is allowing)
+(tbh, I'm open to a polyamorous relationship but I would have to make sure my lover is consenting to it as well)
 
 Basic information on my sexuality(s); Demian — someone who is demisexual AND demiromantic, needing an emotional bond before anything else.
 

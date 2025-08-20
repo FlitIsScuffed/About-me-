@@ -1,5 +1,5 @@
 # About-me-
-(Last update on; August 15, 2025)
+(Last update on; August 20, 2025)
 
 Hello, seems that you are from some part of the Internet, hm? Very nice to meet you, please read the following! (I know it's a lot, sobs)
 

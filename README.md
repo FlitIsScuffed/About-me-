@@ -61,9 +61,9 @@ Age based topics;
 
 My birthday is on the October 13th and I was born in 2010!
 
-I am bodily a Minor; 14 yr old. However, it can be stated that I have the mental status of an young adult; such as a 18-21 yr old. 
+I am bodily a Minor; 14 yr old. However, uh, my mental state is a very complex situation — sometimes I have the mentality of someone 18-21 and sometimes I have the times similar to age regression.
 
-Do NOT approach me for sexual situations or NSFW roleplaying, even if my mental state is older; my body isn't. It was DISGUSTING that I have became the way I did but I have learnt to deal with it.
+Do NOT approach me for sexual situations or NSFW roleplaying. It was DISGUSTING that I have became the way I did but I have learnt to deal with it.
 It takes only one (non-friend + not stated as a joke) sexual comment. I'll report you to whatever website it happens on and go to Twitter to warn people about you.
 
 ![e0a3eb04eb0a828c2ad70a82a271323d](https://github.com/user-attachments/assets/3fd8ddcb-a83d-4d38-826f-0ba50901bc50)
@@ -148,7 +148,7 @@ To put this out; I do NOT do it on purpose, when I am going through those states
 
 ![37f7afd0532b7cda04033e5bd152a5a5](https://github.com/user-attachments/assets/93a92b85-bdcc-4d67-a5e8-fa9151bd8c77)
 
-(7):"Why is mentally and bodily separate ages!?" You could figure it out yourself but whatever.. Short answer; I bacially grew up a lot quicker mentally than I am bodily. Use Google or something if you want a full on detailed answer.
+(7):"Why is mentally and bodily separate ages!?" I don't have to answer anything to you, tbh. Ask Google, pretty simple if you want.
 
 ![4b83096f7506ad3f1a4b6c0cb417ba80](https://github.com/user-attachments/assets/dc3f480f-2b9e-43f4-9197-6c430febbd6b)
 

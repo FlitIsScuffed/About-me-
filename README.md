@@ -1,5 +1,5 @@
 # About-me-
-(Last update on; August 20, 2025)
+(Last update on; August 22, 2025)
 
 Hello, seems that you are from some part of the Internet, hm? Very nice to meet you, please read the following! (I know it's a lot, sobs)
 
@@ -220,7 +220,7 @@ Recently I have been trying to slowly write down all that I remember about certa
 
 • Documentary watchers (Just yes.)
 
-• NON-NSFW Littlespace/regress (Just 💙, I'll absolutely adopt you if you're comfortable)
+• NON-NSFW Littlespace/regress (Just 💙, I'll absolutely adopt you if you're comfortable teeheez)
 
 • Idk what else so etc
 
@@ -260,7 +260,7 @@ Recently I have been trying to slowly write down all that I remember about certa
 
 ○Reaper!Sans (What can I say? A god of death, sign me up)
 
-○Lust!Sans (I do not really like the stuff I had about the creator so I don't support such.)
+○Lust!Sans (I do not really like the stuff I had heard about the creator so I don't support such.)
 
 ○Discord → MLP
 

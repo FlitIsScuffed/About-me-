@@ -168,7 +168,7 @@ To put this out; I do NOT do it on purpose, when I am going through those states
 
 ![bda99c6ae1e315a132eb4d6a3f1dd289](https://github.com/user-attachments/assets/e573b04e-f590-48fc-ad60-0e5ec253adcb)
 
-(12):"Are you taken?" Yes, I am in a beautiful long distance relationship with my lover! He is a xe trans femboy and his preferred name is Sage btw <33
+(12):"Are you taken?" Yes, I am in a beautiful long distance relationship with my lover! They are Genderfluid and their preferred name is Sage btw <33
 
 ![d5fcb2f3cee76e84a4e300c8c6d72b73](https://github.com/user-attachments/assets/38c8cf00-443b-48fe-8133-c323aef78eea)
 

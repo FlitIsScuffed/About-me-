@@ -37,8 +37,6 @@ Polygender — A nonbinary gender identity where a person experiences more than 
 
 Pupgender (also known as Puppygender) — A xenogender identity where one's gender is connected to puppies or described as puppy-like, such as being small, lively, and cute. It is an umbrella term for various dog-associated genders and can be expressed in different ways, including through pronouns like "pup/pupself" or "paw/pawself".
 
-Fanggender — A xenogender connected to the feeling of gender euphoria experienced from having or imagining having fangs
-
 Bloodgender; https://pin.it/72C3BCcVa
 
 ![e219bbd2a9c1926e3d3f8dc8f6697241](https://github.com/user-attachments/assets/f2875641-af40-4b0c-8a22-97a7777eafa1)

@@ -26,7 +26,7 @@ List of my preferred names (From most appreciated to allowed);
 ![8e1e47bee384f378b187b59c52df7e08](https://github.com/user-attachments/assets/d461fccb-937b-486d-80cf-32a2b5ca356a)
 
 
-My preferred pronouns! More information on my pronoun.page;
+My preferred pronouns! More information on my pronoun.page ofc;
 
 Pronouns: Polygender + Xenogender (Pupgender + Bloodgender); She, They, It, Pup, Blood.
 (To add, I prefer genderneutrul pronouns usually but ofc I don't mind feminine pronouns.)

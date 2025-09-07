@@ -1,5 +1,5 @@
 # About-me-
-(Last update on; August 22, 2025)
+(Last update on; September 6th, 2025)
 
 Hello, seems that you are from some part of the Internet, hm? Very nice to meet you, please read the following! (I know it's a lot, sobs)
 
@@ -28,7 +28,7 @@ List of my preferred names (From most appreciated to allowed);
 
 My preferred pronouns! More information on my pronoun.page ofc;
 
-Pronouns: Polygender + Xenogender (Pupgender + Bloodgender); She, They, It, Pup, Blood.
+Pronouns: Polygender + Xenogender (Pupgender + Bloodgender + Foxgender); She, They, It, Pup, Blood, Fox.
 (To add, I prefer genderneutrul pronouns usually but ofc I don't mind feminine pronouns.)
 
 Basic information on what my identities are;
@@ -38,6 +38,8 @@ Polygender — A nonbinary gender identity where a person experiences more than 
 Pupgender (also known as Puppygender) — A xenogender identity where one's gender is connected to puppies or described as puppy-like, such as being small, lively, and cute. It is an umbrella term for various dog-associated genders and can be expressed in different ways, including through pronouns like "pup/pupself" or "paw/pawself".
 
 Bloodgender; https://pin.it/72C3BCcVa
+
+Foxgender; https://pin.it/7lmBtJg0F
 
 ![e219bbd2a9c1926e3d3f8dc8f6697241](https://github.com/user-attachments/assets/f2875641-af40-4b0c-8a22-97a7777eafa1)
 ![6d71bc5981d3dd318abd62d2604658bb](https://github.com/user-attachments/assets/52a171f9-23e5-4a9b-8753-7aeb9e7ef52d)

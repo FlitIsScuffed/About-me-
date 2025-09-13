@@ -6,4 +6,4 @@ Straw.pages;
 
 (Mostly completed) https://dustingbunny.straw.page/ 
 
-(WIP) https://butchersaxe.straw.page/
+(Mostly completed) https://butchersaxe.straw.page/

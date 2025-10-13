@@ -1,4 +1,4 @@
-Helllooo!! Welcome to our GitHub page, we go by the Eternal Graveyard System but many call us Eternal for short.
+Helllooo!! Welcome to our GitHub page, we go by the Graveyard System but many call us Eternal for short.
 We are a suspected dissociative disorder having individual (we don't know if we have OSDD or DID, our personal research goes towards most likely OSDD-1b.)
 
 
@@ -9,18 +9,8 @@ We are a suspected dissociative disorder having individual (we don't know if we 
 
 General DNI list;
 
-• Pro/Conshippers (we are fine with shippers as long as its not being pushed on us and etc etc ~Dusk)
+• Pro/Conshippers (we are fine with shippers as long as its not being pushed on us and etc etc ~Lovesick)
 
 • Endo systems (Respectfully, we don't like y'all. We personally all think that there's no way of a body being a system without trauma, sorry. We won't harass someone over such beliefs however, we don't give that much of a fuck to do that honestly. ~Two Time)
 
-
-Alter straw.pages;
-
-https://dustingbunny.straw.page
-
-https://blackwidowweb.straw.page
-
-https://mewkillersroommew.straw.page
-
-https://butchersaxe.straw.page
-
+• Public Age & Pet players (This especially makes me uncomfortable, please don't come up to us!! Please keep your sexual activities to yourself and your partner(s) or at LEAST your frined group if they are comfortable with such,  idk!! >n<  ~The Lamb)

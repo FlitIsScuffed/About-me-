@@ -2,6 +2,11 @@ Helllooo!! Welcome to our GitHub page, we go by the Graveyard System but many ca
 We are a suspected dissociative disorder having individual (we don't know if we have OSDD or DID, our personal research goes towards most likely OSDD-1b.)
 
 
+Current Host: Flit/Uzza/Blackwidow
+
+Current Gatekeeper: Payback/Two Time
+
+
 ![936f915d1d19821e1fe717ab786684a3](https://github.com/user-attachments/assets/cdc8a976-9eb2-44db-aa98-2cd6f935131b)
 ![3b7e42cb42cf39f26567d4ce15063860](https://github.com/user-attachments/assets/94f38ba0-b3ad-4bae-acd7-774e51ff39c3)
 ![1b1a39eb512da60c6f18f915616e19d4](https://github.com/user-attachments/assets/a7f08628-6741-4bd0-9cac-d9e657558d95)
@@ -17,7 +22,7 @@ General DNI list;
 
 •Corrupted Nightmare kins/irls (this is mostly from Slasher and Jay, both of our Killer alters. Plus imagine kinning a Trump mf ahh; he's canonically a mass phobic - especially homophobic, transphobic and ableist as far as we have been told. ~Ziggy)
 
-•Anti-"woke" and anti-vax individuals (we. Don't. Like. You. People. We already have to deal with many. Piss off, respectfully.  ~Ziggy)
+•Anti-"woke" and anti-vax individuals (we. Don't. Like. You. People. We already have to deal with many. Piss off, respectfully. ~Ziggy)
 
 •Zoophiles, Zoosadists & Pedophiles (Do I really need to explain it for you? It's cuz it's fucking disgusting. Piss off, you babos. ~Coello)
 
@@ -30,3 +35,19 @@ General DNI list;
 •Babyfurs and diaperfurs
 
 •NSFW Littlespaces & Petspaces
+
+General INT list:
+
+•DID & OSDD Systems
+
+•Furries
+
+•Therians
+
+•Murder Time trio Kins (I won't hesitate to adopt you, hehehehe ☆w☆ -Flit)
+
+•Shippers (as long as it doesn't cross into conshipping)
+
+•Documentary watchers
+
+•We don't know what else so etc
